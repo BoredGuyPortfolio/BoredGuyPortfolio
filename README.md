@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BoredGuyPortfolio
+MY name is BoredGuy Portfolio. I am currently interested in multiple projects and want to pursue a more rigorous restructure of the things that interest me. That being said if you made it to this page, somehow in someway you clicked all the right things that would enable you to have a good time. All my work is free to use and all my modifications are free to take. I however will make a compendium eventually and hope that I can sell the source for any of my personal works in the future. 
